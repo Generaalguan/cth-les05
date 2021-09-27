@@ -1,5 +1,5 @@
 # God Of War.
-Is a PS (Playstation) series about a greek god of war Kratos.
+###Is a PS (Playstation) series about a greek god of war Kratos.
 
 ##God Of War 1
 The goddess Athena tasks Kratos with killing Ares, the God of War and Kratos' former mentor who tricked Kratos into killing his wife and daughter. 
