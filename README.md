@@ -16,12 +16,14 @@ Poseidon launches an assault against them, but is killed by Kratos and Gaia; his
 Reaching Olympus' peak, they try to attack Zeus, but he drives them back and knocks them off the mountain.
 
 ## God Of War 4 
-! [God of war] (https://upload.wikimedia.org/wikipedia/en/a/a7/God_of_War_4_cover.jpg)
 Many years after Kratos defeated the Olympian gods, he now lives with his son Atreus in ancient Scandinavia in the realm of Midgard. 
 After cremating the body of his wife, Faye, and after a short hunting/survival lesson with Atreus, 
 Kratos is confronted by a mysterious stranger with godlike power and invulnerability. 
 The two battle and Kratos seemingly kills the stranger, after which Kratos and Atreus begin their journey to honor Faye's last wish: 
 to scatter her ashes at the highest peak in the nine realms.
 
+![God of war](https://www.1337.games/app/uploads/2018/01/god-of-war.jpg)
+
 ## God Of War 5
 Release date: not known yet.
+
