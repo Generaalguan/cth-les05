@@ -29,5 +29,5 @@ to scatter her ashes at the highest peak in the nine realms.
 
 ## God Of War 5
 Release date: not known yet.
-![God of war5](https://en.wikipedia.org/wiki/File:God_of_War_Ragnar%C3%B6k_cover.jpg)
+
 
