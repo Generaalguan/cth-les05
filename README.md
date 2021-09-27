@@ -23,4 +23,4 @@ The two battle and Kratos seemingly kills the stranger, after which Kratos and A
 to scatter her ashes at the highest peak in the nine realms.
 
 ## God Of War 5
-### ill be comming out next year in december.
+### Release date: not known yet.
