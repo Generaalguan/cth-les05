@@ -15,7 +15,8 @@ Kratos, Gaia, and the other Titans ascend Mount Olympus to destroy the Olympian 
 Poseidon launches an assault against them, but is killed by Kratos and Gaia; his death causes the oceans to flood Greece.
 Reaching Olympus' peak, they try to attack Zeus, but he drives them back and knocks them off the mountain.
 
-## God Of War 4
+## God Of War 4 
+! [God of war] (https://en.wikipedia.org/wiki/File:God_of_War_4_cover.jpg)
 Many years after Kratos defeated the Olympian gods, he now lives with his son Atreus in ancient Scandinavia in the realm of Midgard. 
 After cremating the body of his wife, Faye, and after a short hunting/survival lesson with Atreus, 
 Kratos is confronted by a mysterious stranger with godlike power and invulnerability. 
